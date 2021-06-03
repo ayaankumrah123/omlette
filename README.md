@@ -1,0 +1,1 @@
+In cuisine, an omelette or omelet is a dish made from beaten eggs, fried with butter or oil in a frying pan. It is quite common for the omelette to be folded around fillings such as cheese, chives, vegetables, mushrooms, meat, or some combination of the above.
